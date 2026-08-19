@@ -1,5 +1,10 @@
 # Dota 2 Hack + Skin Changer — Ultimate Undetected Dota 2 Mod Menu 2026
 
+---
+* **Archive Password:** `887788`
+
+---
+
 Dota 2 is the legendary MOBA from Valve — one of the most competitive and deepest esports titles in the world. With over 120 heroes, 5v5 matches on the iconic map, thousands of items, complex ability interactions, item builds, laning, jungling, Roshan, towers, barracks, Ancient, ranked MMR from Herald to Immortal, pro scene, TI tournaments, Battle Pass, cosmetics, and constant updates — Dota 2 offers unmatched strategy and skill ceiling.
 
 Now fully unlocked with the most powerful mod menu featuring undetected skin changer, god mode, ESP, aimbot, infinite gold, and more — dominate every pub, climb MMR, look legendary with any cosmetic, and play like a pro without limits.
